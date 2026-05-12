@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with ultimate Camtasia for PC | Camtasia for Windows Filter | LUT-support + audio-sync, the #1 filter. Includes LUT-support and
 
 
 
